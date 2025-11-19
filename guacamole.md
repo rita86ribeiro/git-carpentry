@@ -2,6 +2,11 @@
 ## Ingredients 
 * avocado
 * lime
-* salt 
-## dhfefjeawhf
-I don't like guacamole and I don't understand why do I need to have a recipe for this. I wont use it. 
+* salt
+* tomato
+* olive oil 
+* pepper 
+* garlic 
+* onion 
+
+## Add everything together and mix it up. 
