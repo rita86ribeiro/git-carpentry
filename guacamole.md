@@ -7,6 +7,8 @@
 * olive oil 
 * pepper 
 * garlic 
-* onion 
+* onion
+* chocolate
+* truffa
 
 ## Add everything together and mix it up. 
